@@ -1,0 +1,11 @@
+Danur erado A1
+Titanic jeremy A2
+Avatar sambang A3
+Inception erado B1
+Java erado A1
+Danur erado C1
+Inception jeremy K1
+Danur jeremy C2
+Danur jeremy c2
+Jaws eradoganteng A1
+Avatar indra C1
